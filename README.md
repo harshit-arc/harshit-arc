@@ -3,7 +3,7 @@
 # 💫 Hi 👋, I'm Harshit Singh 
 **A passionate prompt engineer || database management ||
 
-Email Me 👉 ✉️ **alamimran613@live.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **Hs5079244@gmail.com** 
 
 - 🔭 **I’m currently working on (freelancer):** DBS,SIFY<APPTECH,GINGER.
 

@@ -1,3 +1,11 @@
+## 💸 Support My Work 🤝	
+
+# 💫 Hi 👋, I'm Harshit Singh 
+**A passionate prompt engineer || database management ||
+
+Email Me 👉 ✉️ **alamimran613@live.com** For Collaboration/Project or Anything Else. 😊😊
+
+- 🔭 **I’m currently working on (freelancer):** DBS,SIFY<APPTECH,GINGER.
 
 ## 🌐 Socials:
 [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:hs5079244@gmail.com) 

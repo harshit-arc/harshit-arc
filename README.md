@@ -1,4 +1,4 @@
-## 💸 Support My Work 🤝	
+
 
 # 💫 Hi 👋, I'm Harshit Singh 
 **A passionate prompt engineer || database management ||
